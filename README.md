@@ -1,3 +1,3 @@
 # hello_world
 Just anthor repository
-我很迷惘,不知道该何去何从。
+进击、进击，进击
